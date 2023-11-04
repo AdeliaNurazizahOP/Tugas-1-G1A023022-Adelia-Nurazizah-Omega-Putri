@@ -1,0 +1,1 @@
+# Tugas-1-G1A023022-Adelia-Nurazizah-Omega-Putri
